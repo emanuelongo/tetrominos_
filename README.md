@@ -1,0 +1,2 @@
+file:///C:/Users/emanu/Downloads/presentaci%C3%B3n%20Proyecto%20final%20figuras%20geometricas%20azul.pdf
+[presentación Proyecto final figuras geometricas azul.pdf](..%2F..%2FDownloads%2Fpresentaci%F3n%20Proyecto%20final%20figuras%20geometricas%20azul.pdf)
